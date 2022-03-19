@@ -1,1 +1,1 @@
-epfl computer science student, math entouthiast
+cs student @ epfl
